@@ -1,1 +1,1 @@
-work with an open mindset
+Do hard things
